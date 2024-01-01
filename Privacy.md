@@ -1,5 +1,5 @@
 # Privacy Policy
-Last updated: December 26th, 2023
+Last updated: January 1st, 2024
 
 This Privacy Policy describes my policies and procedures regarding the collection, use, and disclosure of Your information when You use the Fooda app and explains Your privacy rights under applicable law.
 
